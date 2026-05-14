@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-  <a href="mailto:202451044@iiitvadodara.ac.in">202451044@iiitvadodara.ac.in</a> &nbsp;
+  <a href="mailto:202451044@iiitvadodara.ac.in">sainidarshit80@gmail.com</a> &nbsp;
 </p>
 
 ---
